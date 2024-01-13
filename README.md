@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Purpleshork
 - 👀 I’m interested in kaiju paradise
-- 🌱 I’m currently learning 👍
-- 💞️ I’m looking to collaborate on 👍
+- 🌱 I’m currently learning como o changed é dificil
+- 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me não me mande mensagem
 - 😄 Pronouns: purple
 - ⚡ Fun fact: jogar kaiju paradise
