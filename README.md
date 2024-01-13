@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Purpleshork
+- 👋 Hi, I’m @Purpleshark
 - 👀 I’m interested in kaiju paradise
 - 🌱 I’m currently learning como o changed é dificil
 - 💞️ I’m looking to collaborate on nada
